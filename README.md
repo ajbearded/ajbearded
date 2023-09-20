@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ajbearded
+- Interedsted in softwear developmwnt/ebngineering 
+- currently working java and python 
+- looking to collaberate and learn 
+- starting off and working my way up 
